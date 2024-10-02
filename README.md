@@ -1,0 +1,4 @@
+-👋 OLá eu sou GABZZERAS
+-Gosto de boxe🥊
+-Tenho 15 anos
+-✍️ Sou estudande do ensino médio
